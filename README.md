@@ -2,7 +2,7 @@
 
 💜 i like the color purple
 
-i listen to normal music such as Michael Jackson, Snoop Dogg, etc.
+i like music that aren't emo and stuff :sob:
 
 ## Languages i sort of know
 
