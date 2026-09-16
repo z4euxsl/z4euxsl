@@ -1,6 +1,6 @@
 # about me
 
-💜 i like the color purple
+i love glazing myself by 100% :D
 
 i like music that aren't emo and stuff :sob:
 
